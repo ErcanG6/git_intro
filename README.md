@@ -1,2 +1,1 @@
 Ercan Gokcek
-24
